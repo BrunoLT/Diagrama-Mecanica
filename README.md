@@ -1,0 +1,1 @@
+# Diagrama-Mec-nica
